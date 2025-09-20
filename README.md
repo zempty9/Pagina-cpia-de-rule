@@ -1,1 +1,0 @@
-# Pagina-cpia-de-rule
